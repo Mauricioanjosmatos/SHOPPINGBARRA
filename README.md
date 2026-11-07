@@ -1,0 +1,1 @@
+Escala Shopping Barra
